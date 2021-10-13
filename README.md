@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ALIMDYOUSUF
+- 👀 I’m interested in ML,AI, and Networking
+- 🌱 I’m currently learning (ML & AI)
+- 💞️ I’m looking forward to collaborate with you
+- 📫 How to reach me through "engralimdyousufali@gmail.com'
